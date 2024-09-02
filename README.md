@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on programming
 - 📫 How to reach me Insta - @_haripratap_
 - 😄 Pronouns: he/him
-  
