@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @haripratapsn
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on programming
+- 📫 How to reach me Insta - @_haripratap_
+- 😄 Pronouns: he/him
+  
